@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @mirakoUms
+- 👋 Hi, I’m @mirakoUms (John)
 - Minecraft Mod is a very good idea.
